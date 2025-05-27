@@ -56,3 +56,4 @@ He/Him
 
 > "Code is not just for machines—it's communication for humans too."
 
+![image](https://github.com/user-attachments/assets/200dc679-7879-41eb-ae40-5837a3a3a27c)
